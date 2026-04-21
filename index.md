@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+"As if
+every thought that tumbles through your
+head is so clever it would be a crime for
+it not to be shared"
+Social Network (2010)
