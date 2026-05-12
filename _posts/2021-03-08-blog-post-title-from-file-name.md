@@ -1,6 +1,7 @@
-## Blog Post Title From First Header
+## Condones, copas y zapatos
 
-Due to a plugin called `jekyll-titles-from-headings` which is supported by GitHub Pages by default. The above header (in the markdown file) will be automatically used as the pages title.
+Es bastante impresionante la cantidad de violencia a la que nos sometemos els gays, algunos de nosotros. Mientras José (late 40s, enfermero, has seen it all, lived through it all, hung as a horse and a forever twink) me hablaba sobre experiencias que vivió en primera persona sentía completo asombro, disgusto y Tristeza. Soy parte de un grupo marginalizado. Pretendemos que se ha infiltrado el mainstream y que la normalización queer está simplemente sufriendo un pendulum swing a la otra dirección, pero la naturaleza de esta comunidad es bastante violenta. José es parte de una generación aún más pisoteada y para mí eso es explicación de sobra para haber, for one, dormido a lado de un cadáver después de haber pasado la noche drogándose y cogiendo. José, que tiene un compromiso legal por revivir a los muertos, pidió una ambulancia “medicalizada” e hizo una resucitación exitosa, pero el chico falleció al día siguiente porque la falta de oxígeno ya había acabado con su cerebro. Esto no ha sido un incidente aislado, pero ahora ya nunca menciona que es enfermero al ir a un chill, mucho menos cumple su ‘obligación legal’. Se ha conformado con esta realidad que sigue bastante presente, for old and Young..<img width="468" height="271" alt="image" src="https://github.com/user-attachments/assets/639eb7d0-4287-4f92-ba9d-831e76d019d9" />
+
 
 If the file does not start with a header, then the post title will be derived from the filename.
 
