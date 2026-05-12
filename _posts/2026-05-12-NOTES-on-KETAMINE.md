@@ -1,32 +1,4 @@
 ## NOTES on **KETAMINE**
 
-Due to a plugin called `jekyll-titles-from-headings` which is supported by GitHub Pages by default. The above header (in the markdown file) will be automatically used as the pages title.
-
-If the file does not start with a header, then the post title will be derived from the filename.
-
-This is a sample blog post. You can talk about all sorts of fun things here.
-
----
-
-### This is a header
-
-#### Some T-SQL Code
-
-```tsql
-SELECT This, [Is], A, Code, Block -- Using SSMS style syntax highlighting
-    , REVERSE('abc')
-FROM dbo.SomeTable s
-    CROSS JOIN dbo.OtherTable o;
-```
-
-#### Some PowerShell Code
-
-```powershell
-Write-Host "This is a powershell Code block";
-
-# There are many other languages you can use, but the style has to be loaded first
-
-ForEach ($thing in $things) {
-    Write-Output "It highlights it using the GitHub style"
-}
-```
+- *05/12* Todavía siento las olas de haber contemplado el suicidio tan de cerca, más cerca que cualquier otra vez los últimos 4 años, maybe ketamine saved me. Maybe I *will* kill myself. Por ahora, si me veo vivo después de mayo, be it for what it may
+- Last K-hole (09/05)destroyed my notion of SPACE. Todo fue tan caótico por un momento y solamente lo acepté, la resistencia duro muy corta.
