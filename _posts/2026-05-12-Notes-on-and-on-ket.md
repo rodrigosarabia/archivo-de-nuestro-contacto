@@ -1,4 +1,4 @@
-## Notes on & on Ketamine
+## Notes on and on ket
 
 ### *05/12* 
 
@@ -10,7 +10,7 @@ Last K-Hole alteró mi noción del espacio. Eso es lo que quiero que crean los d
 
 Pero ser hiperbólico es común. Aborrezco caer escucha de historias que claramente han sido enriquecidas por la imaginación del intérprete, me hace sentir que estoy desperdiciando el tiempo, que nada de lo que escucho es real, y que ésta persona, narrador poco confiable (tan desconsiderada con mi tiempo y con mi estima de la verdad absoluta) se parece más a mí de lo que me gustaría admitir. Pero yo no soy así. Yo jamás abusaría del lenguaje a ese nivel. Yo soy racional y objetivo, yo miento en los detalles pequeños, yo presento la verdad que mi mente ha decidido para mí y, sí la presento las veces suficientes, esa verdad será la única que exista. Manifiesto la realidad que quiero a través de las historias que cuento y mi vida se transforma en lo que mi mente ha decidido para mí. Henos aquí. 
 
-> Empiezo a tener un problema con esta separación casi forzada entre mente/cerebro y persona. Lo último que debo hacer para este punto es continuar evadiendo responsabilidad. Yo soy mi mente. Yo soy mi cerebro. Y yo soy un cigarrillo.
+> Empiezo a tener un problema con esta separación casi forzada entre mente/cerebro y persona. Lo último que debo hacer para este punto es continuar evadiendo responsabilidad. Yo soy mi mente. Yo soy mi cerebro. Y yo [soy un cigarro](https://rodrigosarabia.github.io/archivo-de-nuestro-contacto/2026/05/13/soy-un-cigarro.html).
 
 Somos el entorno
 
