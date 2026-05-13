@@ -1,4 +1,4 @@
-## Notes on and on Ketamine
+## Notes on & on Ketamine
 
 ### *05/12* 
 
