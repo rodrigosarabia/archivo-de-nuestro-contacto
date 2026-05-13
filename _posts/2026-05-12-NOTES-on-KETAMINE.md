@@ -1,4 +1,4 @@
-## Notes <sub>on</sub> & <sup>on</sup> **Ketamine**
+## Notes <sub>on</sub> & on *Ketamine*
 
 ### *05/12* 
 
@@ -6,7 +6,7 @@ Todavía siento las olas de haber contemplado el suicidio tan de cerca, más cer
 
 ### K-hole & the point of no return (*09/05*). 
 
-Last K-Hole alteró mi noción del espacio. Eso es lo que quiero que crean los demás. Edito días después, sobrio, a las 3:57 AM del Miércoles *13/05*, pensando en la mentira que he dicho e intento ser honesto, no tengo por qué continuar con el performance. Estoy harto del performance. He arruinado mi vida a causa de la disonancia, el vacío enorme que he cavado entre lo real y la performance. 
+Last K-Hole alteró mi noción del espacio. Eso es lo que quiero que crean los demás. Edito días después, sobrio, a las 3:57 AM del Miércoles *13/12*, pensando en la mentira que he dicho e intento ser honesto, no tengo por qué continuar con el performance. Estoy harto del performance. He arruinado mi vida a causa de la disonancia, el vacío enorme que he cavado entre lo real y la performance. 
 
 Pero ser hiperbólico es común. Aborrezco caer escucha de historias que claramente han sido enriquecidas por la imaginación del intérprete, me hace sentir que estoy desperdiciando el tiempo, que nada de lo que escucho es real, y que ésta persona, narrador poco confiable (tan desconsiderada con mi tiempo y con mi estima de la verdad absoluta) se parece más a mí de lo que me gustaría admitir. Pero yo no soy así. Yo jamás abusaría del lenguaje a ese nivel. Yo soy racional y objetivo, yo miento en los detalles pequeños, yo presento la verdad que mi mente ha decidido para mí y, sí la presento las veces suficientes, esa verdad será la única que exista. Manifiesto la realidad que quiero a través de las historias que cuento y mi vida se transforma en lo que mi mente ha decidido para mí. Henos aquí. 
 
