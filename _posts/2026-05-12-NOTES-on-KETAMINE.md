@@ -1,4 +1,4 @@
-## Notes <sub>on</sub> & on *Ketamine*
+## Notes 
 
 ### *05/12* 
 
