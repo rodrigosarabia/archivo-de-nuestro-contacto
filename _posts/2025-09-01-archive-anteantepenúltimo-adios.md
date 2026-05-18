@@ -2,9 +2,9 @@
 
 > i always got the sense q u wouldnt be there for me when it got bad 
 
-fran espero recuerdes esta época de tu vida cn la misma felicidad q yo. cuando piense en este último año te tendré presente y aunque tengo la sensación completa de q ha terminado una era de mi vida y de la tuya confío en q siempre estaremos conectados y te tendré en mi corazón por el resto de mi vida. genuinamente me has enseñado algo nuevo sobre la conexion humana y estoy tanto muy feliz de haber compartido este tiempo contigo así como de seguir viéndote crecer. 
+    fran espero recuerdes esta época de tu vida cn la misma felicidad q yo. cuando piense en este último año te tendré presente y aunque tengo la sensación completa de q ha terminado una era de mi vida y de la tuya confío en q siempre estaremos conectados y te tendré en mi corazón por el resto de mi vida. genuinamente me has enseñado algo nuevo sobre la conexion humana y estoy tanto muy feliz de haber compartido este tiempo contigo así como de seguir viéndote crecer. 
 
-tmb de vd no quiero sonar dramatico simplemente tengo la sensación de q estamos ante Algo y creo q no me sentiría bien de no decirte lo q significas para mip. 
+    tmb de vd no quiero sonar dramatico simplemente tengo la sensación de q estamos ante Algo y creo q no me sentiría bien de no decirte lo q significas para mip. 
 
 siempre estaré para tip
 
