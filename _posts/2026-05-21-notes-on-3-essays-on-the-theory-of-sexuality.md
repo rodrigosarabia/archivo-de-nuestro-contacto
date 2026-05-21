@@ -13,5 +13,5 @@ Mecanismo físico que antecede al desviado futuro (pag 1473)
 
 [Civilization and its discontempts](https://www.sas.upenn.edu/~cavitch/pdf-library/Freud_SE_Civ_and_Dis_complete.pdf)
 
-The true source of religious sentiments (pag )
+The true source of religious sentiments (pag 64)
 > This, he says, consists in a peculiar feeling, which he himself is never without, which he finds confirmed by many others, and which he may suppose is present in millions of people. It is a feeling which he would like to call a sensation of ‘eternity’, a feeling as of something limitless, unbounded—as it were, ‘oceanic’. This feeling, he adds, is a purely subjective fact, not an article of faith; it brings with it no assurance of personal immortality, but it is the source of the religious energy which is seized upon by the various Churches and religious systems, directed by them into particular channels, and doubtless also exhausted by them. One may, he thinks, rightly call oneself religious on the ground of this oceanic feeling alone, even if one rejects every belief and every illusion.
