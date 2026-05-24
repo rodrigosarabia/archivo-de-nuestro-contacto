@@ -22,5 +22,7 @@ Ego, love, mental pathologies (pag 66)
 
 Ego, id (pag 67)
 > A further incentive to a disengagement of the ego from the general mass of sensations—that is, to the recognition of an ‘outside’, an external world—is provided by the frequent, manifold and unavoidable sensations of pain and unpleasure the removal and avoidance of which is enjoined by the pleasure principle, in the exercise of its unrestricted domination. [...]  A tendency arises to separate from the ego everything that can become a source of such unpleasure, to throw it outside and to create a pure pleasure-ego which is confronted by a strange and threatening ‘outside’.
-> 
+
+(pag 77)
+> An unrestricted satisfaction of every need presents itself as the most enticing method of conducting one's life, but it means putting enjoyment before caution, and soon brings its own punishment. 
 
