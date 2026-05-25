@@ -1,4 +1,7 @@
-## Notes on and on ket
+## Notes on ket
+
+> [!CAUTION]
+> Not to be confused with Notes about ket
 
 ### *05/12* 
 
