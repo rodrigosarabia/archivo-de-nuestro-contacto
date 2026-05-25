@@ -1,7 +1,6 @@
 ## Notes on ket
 
-> [!CAUTION]
-> Not to be confused with [Notes about ket](https://rodrigosarabia.github.io/archivo-de-nuestro-contacto/2026/05/25/notes-about-ket.html)
+> _Not to be confused with [Notes about ket](https://rodrigosarabia.github.io/archivo-de-nuestro-contacto/2026/05/25/notes-about-ket.html)_
 
 ### *05/12* 
 
